@@ -1,2 +1,3 @@
 # Project-1
-Cuman buat Belajar doang
+Project Untuk membuat otomisasi dalam komputer/laptop 
+any question dm me:@dim_dinasty
